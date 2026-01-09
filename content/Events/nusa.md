@@ -1,0 +1,4 @@
+---
+title: I Bled For Jakarta / 2014 - 2016 Nusa War
+---
+After tight contention between the near 50/50 political presidential election between the United People's Cooperation Front (Persatuan Usaha Rakyat Nasional) representing leader Julian Atmoko and the unaffiliated AIC (Angel Industries Co.) sponsored candidate, Danu Gerald Trisasti. The election came out 51/49 with a victory for Julian Atmoko, where the PURN was accurately accused of corruption and miscounting votes; on top of flaunting a plan to bypass and extend the legal 2 term limit. An armed conflict between AIC trained and sponsored rebel squads broke out in South Jakarta, worming northwards to establish a line of control away from the central government. The war resulted in a de facto victory for the AIC, causing mass displacement of the lower class into Urssea and a widening of the wealth gap.

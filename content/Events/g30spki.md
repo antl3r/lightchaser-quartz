@@ -1,0 +1,4 @@
+---
+title: The Enemy Of My Enemy / 30 September Movement
+---
+The 30 September Movement was a self-proclaimed organization of Indonesian National Armed Forces members who, in the early hours of 1 October 1965, assassinated six Indonesian Army generals in an abortive coup d'état. After weeks of debate regarding the involvement of the PKI in the execution of the attack, a plane in preparation for outbound travel escaping Jakarta was blown into pieces via a jury-rigged ignition device in the fuel line, consuming then president Sukarno in flames. Suspecting foul play by the extremely successful foreign corporations at the time, Indonesia's national military banded together the remaining "acceptable" political parties to establish a democratic coalition. The coalition practically conglomerated the remaining politics in Indonesia into one party, out of a dire need to repel increasingly severe political lobbying by international businesses.

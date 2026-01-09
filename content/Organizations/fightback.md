@@ -1,0 +1,9 @@
+---
+title: Fight Back Radio
+---
+An Urssean radio station serving as the 2S universal communications channel and message machine, often playing hard metal in Indonesian.
+## Breaks
+- "Kembali lagi ke fight back dengan gue, Arve. Gimana pagi ini? Udah muak ama sistem? Pagi bangun kerja, ngantri buat kerja, pulang cuman bisa mikirin kerja, pasangan belum pulang; kerja. Fuck that, ambil kebebasan lu. Bolos. Absen. Jangan mau lu didorong-dorong babi kelas atas. Balik ke musik, tapi mindset lu benerin, baru lu ngerti lagu-lagu ini yang gua mainin."
+- "Kembali lagi ke fight back, gue arve, bla bla. Kali ini kita masuk ke pertanyaan sehari-hari, ada yang nanya nih ama gua; "Bang, misalnya nih, kita bener-bener buat nih, free society, kek, bebas penuh gitu kan. Artinya yang buruk-buruk boleh aja dilakuin dong. kek selingkuh, bunuh orang, gitu-gitu." Nah, pertanyaan yang goblok. Tentunya kebebasan bukan artinya bebas untuk bertindak buruk, anjing, karena dalam otoritas sama aja dilakuin yang buruk, tetapi buruk itu dipilih-pilih mana yang bener buruk ato kagak, dari orang-orang yang berada di atas elu. Kalo lu lakuin yang nyakitin atau ngerugiin orang lain, artinya lu tolol. Tau tolol? Tau pasti lah. Ada yang lebih penting dari kebebasan yang lu harus punya tapi yang gak dipunyain monyet otoriter ini, namanya respek. Respek lah sama segala orangnya sekitar lu, monyet. Balik ke musik lah, anjing."
+- "Ini fight back, dan ini gua arve. Ada yang inget si algojo gak si? Anak chapter kanndas kita, kalo gak salah. Kalo ada namanya orang gila bener-bener macem assassin ya itu dia. Konon si gojo ini ngabisin orang di larut malem-malem pake dihantam berkali-kali, pala dan muka pun susah dicari di mayatnya, tulangnya udah berserpih-serpih gitu lah, anjing. Merinding gua sih jadi lu. Makanya, kalo jalan-jalan yang tertib, ikutin kode hormat, jangan mentang-mentang ngegeng lu lupa etika. Kalo nggak, siapa tau lu
+ditemuin. Awas aja lo. Balik ke musik."
